@@ -1,7 +1,7 @@
 
 <p>
   <iframe src="https://player.vimeo.com/video/297194284" width="300"
-   height="150" frameborder="0" webkitallowfullscreen mozallowfullscreen 
+   height="169" frameborder="0" webkitallowfullscreen mozallowfullscreen 
    allowfullscreen></iframe>
   <img src="/assets/images/members.jpg">
   <img src="/assets/images/members2.jpg">
