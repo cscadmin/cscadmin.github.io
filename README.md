@@ -1,5 +1,8 @@
 
 <p>
+  <iframe src="https://player.vimeo.com/video/297194284" width="300"
+   height="150" frameborder="0" webkitallowfullscreen mozallowfullscreen 
+   allowfullscreen></iframe>
   <img src="/assets/images/members.jpg">
   <img src="/assets/images/members2.jpg">
   <span class="showable">You too can speak with confidence!</span>
@@ -10,7 +13,7 @@
 Craven Speakers Club is here to help _you_ improve your **speaking & presentation skills**
 
 - We're a friendly, local, not-for-profit club
-- We meet regularly in **Skipton** - [2018 events timetable here](/events.html)
+- We meet regularly in **Skipton** - [2018/2019 events timetable here](/events.html)
 - We're a member of the UK national [Association of Speakers Clubs](http://www.speakersclubs.uk/)
 
 ## Join Us...
