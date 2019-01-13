@@ -1,3 +1,7 @@
+<a href="/blog2018.html#3-dec-2018" class="button">
+    Dales Competition
+</a>
+
 <a href="/blog2018.html#2-jun-2018" class="button">
     Summer Break..
 </a>
@@ -15,5 +19,5 @@
 </a>
 
 <a href="/blog2018.html#27-sept-2017---topics-champions" class="button">
-    2017 Topics Champions
+    Topics Champions
 </a>
