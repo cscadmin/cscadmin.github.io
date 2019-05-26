@@ -1,3 +1,7 @@
+<a href="/blog2019.html#26-may-2019" class="button">
+    2019 Success!
+</a>
+
 <a href="/blog2018.html#3-dec-2018" class="button">
     Dales Competition
 </a>
