@@ -1,8 +1,20 @@
 **New members _always_ welcome** at any event. Our regular **Skipton** venue is 
 **The Soroptimist Rooms, 28 Otley St, Skipton, BD23 1EW**
 
+## Meetings and Events - Autumn 2019
 
-## Meetings and Events - Spring 2019
+| Date / Time              | Location                  | Details                                    |
+|:------------------------ |:------------------------- |:------------------------------------------ |
+| Mon 09 Sep 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 23 Sep 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 07 Oct 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 21 Oct 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 04 Nov 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 18 Nov 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 02 Dec 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 16 Dec 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+
+## Past Meetings and Events - Spring 2019
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
