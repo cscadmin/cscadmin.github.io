@@ -5,14 +5,15 @@
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
-| Mon 09 Sep 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
-| Mon 23 Sep 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
-| Mon 07 Oct 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
-| Mon 21 Oct 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
-| Mon 04 Nov 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
-| Mon 18 Nov 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
-| Mon 02 Dec 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
-| Mon 16 Dec 2019 - 7.30pm | Skipton                   | Club night - Topics Contest                |
+| Mon 09 Sep 2019 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 23 Sep 2019 - 7.30pm | Skipton                   | Club night - Speeches + Teaching Session   |
+| Mon 07 Oct 2019 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 21 Oct 2019 - 7.30pm | Skipton                   | Club Speech and Evaluation Contest         |
+| Mon 04 Nov 2019 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 18 Nov 2019 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Sat 30 Nov 2019          | St Peters, Crosshills     | Area Speech & Evaluation Contest           | 
+| Mon 02 Dec 2019 - 7.30pm | Skipton                   | Joint Meeting with Bradford (@ Skipton)    |
+| Mon 16 Dec 2019 - 7.30pm | Skipton                   | Christmas Special!                         |
 
 ## Past Meetings and Events - Spring 2019
 
