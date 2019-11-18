@@ -1,6 +1,21 @@
 **New members _always_ welcome** at any event. Our regular **Skipton** venue is 
 **The Soroptimist Rooms, 28 Otley St, Skipton, BD23 1EW**
 
+## Meetings and Events - Early 2020 
+
+| Date / Time              | Location                  | Details                                    |
+|:------------------------ |:------------------------- |:------------------------------------------ |
+| Mon 13 Jan 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 27 Jan 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 10 Feb 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 24 Feb 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 09 Mar 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 23 Mar 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 06 Apr 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 20 Apr 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 04 May 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 18 May 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+
 ## Meetings and Events - Autumn 2019
 
 | Date / Time              | Location                  | Details                                    |
