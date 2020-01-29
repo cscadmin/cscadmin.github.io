@@ -5,16 +5,17 @@
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
-| Mon 13 Jan 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 13 Jan 2020 - 7.30pm | Skipton                   | Club Topics Contest                        |
 | Mon 27 Jan 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
 | Mon 10 Feb 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
-| Mon 24 Feb 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 24 Feb 2020 - 7.30pm | Skipton                   | Club night - Speaking Tips and speeches    |
 | Mon 09 Mar 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
 | Mon 23 Mar 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Wed 25 Mar 2020 - 7.30pm | Skipton                   | Joint meeting with Bradford club at Baildon|
 | Mon 06 Apr 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
 | Mon 20 Apr 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
 | Mon 04 May 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
-| Mon 18 May 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
+| Mon 18 May 2020 - 7.30pm | Skipton                   | Club AGM (last meeting before summer break)|
 
 ## Meetings and Events - Autumn 2019
 
