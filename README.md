@@ -8,6 +8,10 @@
   <span class="showable">You too can speak with confidence!</span>
 </p>
 
+## ! Coronavirus Update !
+
+We have unfortunately had to take the decision to cancel our Spring 2020 programme due to the unfolding Coronavirus situation and latest government advice to avoid public gatherings. Take care of yourselves, we looking forward to seeing you for a new season of speaker's club in Autumn 2020.
+
 ## Welcome !
 
 Craven Speakers Club is here to help _you_ improve your **speaking & presentation skills**
