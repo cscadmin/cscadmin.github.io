@@ -10,7 +10,7 @@
 
 ## ! Coronavirus Update !
 
-We have unfortunately had to take the decision to cancel our Spring 2020 programme due to the unfolding Coronavirus situation and latest government advice to avoid public gatherings. Take care of yourselves, we looking forward to seeing you for a new season of speaker's club in Autumn 2020.
+We have unfortunately had to take the decision to **cancel** our Spring 2020 programme due to the unfolding **Coronavirus** situation and latest government advice to avoid public gatherings. Take care of yourselves, we looking forward to seeing you for a new season of speaker's club in Autumn 2020.
 
 ## Welcome !
 
