@@ -1,7 +1,9 @@
 **New members _always_ welcome** at any event. Our regular **Skipton** venue is 
 **The Soroptimist Rooms, 28 Otley St, Skipton, BD23 1EW**
 
-## Meetings and Events - Early 2020 
+## Meetings and Events - Early 2020 -- !! Coronavirus Update !!
+
+We have unfortunately had to take the decision to **cancel** our Spring 2020 programme due to the unfolding **Coronavirus** situation and latest government advice to avoid public gatherings. Take care of yourselves, we looking forward to seeing you for a new season of speaker's club in Autumn 2020.
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
@@ -10,12 +12,12 @@
 | Mon 10 Feb 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
 | Mon 24 Feb 2020 - 7.30pm | Skipton                   | Club night - Speaking Tips and speeches    |
 | Mon 09 Mar 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
-| Mon 23 Mar 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
-| Wed 25 Mar 2020 - 7.30pm | Skipton                   | Joint meeting with Bradford club at Baildon|
-| Mon 06 Apr 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
-| Mon 20 Apr 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
-| Mon 04 May 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
-| Mon 18 May 2020 - 7.30pm | Skipton                   | Club AGM (last meeting before summer break)|
+| Mon 23 Mar 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
+| Wed 25 Mar 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
+| Mon 06 Apr 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
+| Mon 20 Apr 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
+| Mon 04 May 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
+| Mon 18 May 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
 
 ## Meetings and Events - Autumn 2019
 
