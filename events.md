@@ -3,7 +3,7 @@
 
 ## Meetings and Events - Early 2020 -- !! Coronavirus Update !!
 
-We have unfortunately had to take the decision to **cancel** our Spring 2020 programme due to the unfolding **Coronavirus** situation and latest government advice to avoid public gatherings. Take care of yourselves, we looking forward to seeing you for a new season of speaker's club in Autumn 2020.
+Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app). New members are very welcome welcome to join in, please get in contact to obtain instructions for joining online. Take care of yourselves, we are looking forward to meeting in-person for a new season of speaker's club in Autumn 2020.
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
@@ -14,10 +14,10 @@ We have unfortunately had to take the decision to **cancel** our Spring 2020 pro
 | Mon 09 Mar 2020 - 7.30pm | Skipton                   | Club night - Speeches and Ad-Lib Topics    |
 | Mon 23 Mar 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
 | Wed 25 Mar 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
-| Mon 06 Apr 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
-| Mon 20 Apr 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
-| Mon 04 May 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
-| Mon 18 May 2020 - 7.30pm | CANCELLED!                | CANCELLED!                                 |
+| Mon 06 Apr 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 20 Apr 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 04 May 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 18 May 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 
 ## Meetings and Events - Autumn 2019
 
