@@ -10,7 +10,7 @@
 
 ## ! Coronavirus Update !
 
-We have unfortunately had to take the decision to **cancel** our Spring 2020 programme due to the unfolding **Coronavirus** situation and latest government advice to avoid public gatherings. Take care of yourselves, we looking forward to seeing you for a new season of speaker's club in Autumn 2020.
+Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app). New members are very welcome welcome to join in, please get in contact to obtain instructions for joining online. Take care of yourselves, we are looking forward to meeting in-person for a new season of speaker's club in Autumn 2020.
 
 ## Welcome !
 
