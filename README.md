@@ -10,7 +10,7 @@
 
 ## ! Coronavirus Update !
 
-Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app) during 2020. *New members are very welcome at these  sessions*, please get in [contact](/contact.html) to obtain instructions for joining us online. We are very keen to get back to meeting in person in 2021, but we have decided put everyone's health first at the moment. 
+Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app) during 2020. *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person in 2021, but we have decided put everyone's health first at the moment. 
 
 ## Welcome !
 
