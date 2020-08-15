@@ -13,7 +13,7 @@ Due to the current **Coronavirus** situation, we have moved our meetings to be *
 | Mon 19 Oct 2020 - 7.30pm | Online - Zoom             | Club night - Speaking Tips and speeches    |
 | Mon 02 Nov 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 16 Nov 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
-| Wed 30 Nov 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 30 Nov 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 14 Dec 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 
 ## Meetings and Events - Early 2020
