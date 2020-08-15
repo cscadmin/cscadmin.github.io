@@ -10,7 +10,7 @@
 
 ## ! Coronavirus Update !
 
-Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app). New members are very welcome welcome to join in, please get in contact to obtain instructions for joining online. Take care of yourselves, we are looking forward to meeting in-person for a new season of speaker's club in Autumn 2020.
+Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app) during 2020. New **members are very welcome welcome to join in** and we would love to welcome you to a meeting, please get in contact to obtain instructions for joining online. We are very keen to get back to meeting in person in 2021, but we have decided put everyone's health first at the moment. 
 
 ## Welcome !
 
