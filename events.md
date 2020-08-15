@@ -1,9 +1,22 @@
 **New members _always_ welcome** at any event. Our regular **Skipton** venue is 
 **The Soroptimist Rooms, 28 Otley St, Skipton, BD23 1EW**
 
-## Meetings and Events - Early 2020 -- !! Coronavirus Update !!
+## Meetings and Events - Autumn 2020 -- !! Coronavirus Update !!
 
-Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app). New members are very welcome welcome to join in, please get in contact to obtain instructions for joining online. Take care of yourselves, we are looking forward to meeting in-person for a new season of speaker's club in Autumn 2020.
+Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app) during 2020. *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person in 2021, but we have decided put everyone's health first at the moment. 
+
+| Date / Time              | Location                           | Details                                    |
+|:------------------------ |:---------------------------------- |:------------------------------------------ |
+| Mon 07 Sep 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speeches and Ad-Lib Topics    |
+| Mon 21 Sep 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speeches and Ad-Lib Topics    |
+| Mon 05 Oct 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speeches and Ad-Lib Topics    |
+| Mon 19 Oct 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speaking Tips and speeches    |
+| Mon 02 Nov 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speeches and Ad-Lib Topics    |
+| Mon 16 Nov 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speeches and Ad-Lib Topics    |
+| Wed 30 Nov 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speeches and Ad-Lib Topics    |
+| Mon 14 Dec 2020 - 7.30pm | Online - Zoom (due to Coronavirus) | Club night - Speeches and Ad-Lib Topics    |
+
+## Meetings and Events - Early 2020
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
