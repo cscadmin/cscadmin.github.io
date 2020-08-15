@@ -1,7 +1,7 @@
 **New members _always_ welcome** at any event. Our regular **Skipton** venue is 
 **The Soroptimist Rooms, 28 Otley St, Skipton, BD23 1EW**
 
-## Meetings and Events - Autumn 2020 -- !! Coronavirus Update !!
+## Meetings and Events - Autumn 2020 - !! Coronavirus Update !!
 
 Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app) during 2020. *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person in 2021, but we have decided put everyone's health first at the moment. 
 
