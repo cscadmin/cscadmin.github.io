@@ -1,7 +1,7 @@
 
 ## ! Coronavirus Update !
 
-Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app) during 2020. *New members are very welcome at these  sessions*, please get in contact to obtain instructions for joining us online. We are very keen to get back to meeting in person in 2021, but we have decided put everyone's health first at the moment. **The information below re joining us in person at The Soroptimist's Rooms for a physical meeting is not currently relevant until we review the Coronavirus situation in 2021**.
+Due to the current **Coronavirus** situation, we have moved our meetings to be **online** only (using the Zoom app) during 2020. *New members are very welcome at these  sessions, please get in contact to obtain instructions for joining us online*. We are very keen to get back to meeting in person in 2021, but we have decided put everyone's health first at the moment. **The information below re joining us in person at The Soroptimist's Rooms for a physical meeting is not currently relevant until we review the Coronavirus situation in 2021**.
 
 ## Chat with Us ...
 
