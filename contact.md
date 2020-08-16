@@ -11,7 +11,6 @@ one of us a call on **01535 652915** or **01535 665278** or **07941 785340**. We
 ## Connect with Us ...
 
 - Please feel free to email <mailto:webeditor@craven-speakers.org.uk> us with any queries.  
-- We also have a [MeetUp site](https://www.meetup.com/Craven-Speakers-Club-Meetup/)
 - You can also find us on [Twitter](https://twitter.com/cravenspeakers)
 - Or [Facebook](https://www.facebook.com/Craven-Speakers-Club-1497457170340311/)
 
