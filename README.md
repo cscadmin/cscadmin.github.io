@@ -27,7 +27,7 @@ Craven Speakers Club is here to help _you_ improve your **speaking & presentatio
 Our members gain **confidence** and **support**, growing to become _better_ **speakers**,
 _better_ **presenters** and _better_ **leaders**.
 
-- In normal circumstances we meet every other week - **7.30pm until 9pm** at _The Soroptimist's Rooms, 28 Otley St, Skipton, BD23 1EW_
+- _In normal circumstances_ we meet every other week - **7.30pm until 9pm** at _The Soroptimist's Rooms, 28 Otley St, Skipton, BD23 1EW_ <span style="color:red;">meetings are currently online due to Coronavirus, see above</span>
 - **First 3 meetings free** - then after that a small fee to cover venue hire (less than £5 per time)
 - We run an established training programme that's been **proven to work**
 - Benefit from our _supportive, fun, relaxed, pressure-free_ environment
