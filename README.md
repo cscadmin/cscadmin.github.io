@@ -28,7 +28,7 @@ Our members gain **confidence** and **support**, growing to become _better_ **sp
 _better_ **presenters** and _better_ **leaders**.
 
 - _In normal circumstances_ we meet every other week - **7.30pm until 9pm** at _The Soroptimist's Rooms, 28 Otley St, Skipton, BD23 1EW_ <span style="color:red;"> Meetings are currently online due to Coronavirus, see above</span>
-- <span style="color:red;">**Meetings are currently free**</span> - as we are meeting online at the moment due to Covid
+- <span style="color:red;">**Meetings are currently free**</span> (until May 2021) - as we are meeting online at the moment due to Covid
 - We run an established training programme that's been **proven to work**
 - Benefit from our _supportive, fun, relaxed, pressure-free_ environment
 
