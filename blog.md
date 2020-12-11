@@ -5,8 +5,10 @@ We're still very much going (online) through these Coronavirus times and still h
 
 **Here's some posters to help highlight what we can offer**
 
-<a href="/assets/images/cscPosterFree.pdf">Poster - Sessions Are Currently Free</a>
-<a href="/assets/images/csc-2020-2021-microphone.pdf">Poster - Microphone</a>
+<ul>
+<li><a href="/assets/images/cscPosterFree.pdf">Poster - Sessions Are Currently Free</a>
+<li><a href="/assets/images/csc-2020-2021-microphone.pdf">Poster - Microphone</a>
+</ul>
 
 <img src="/assets/images/poster1.jpg">
 
