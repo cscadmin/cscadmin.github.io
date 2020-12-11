@@ -1,10 +1,14 @@
 ## 10 December 2020
 ### New Posters
 
-We're still very much going (online) through these Coronavirus times and still helping people with their speaking skills
+We're still very much going (online) through these Coronavirus times and still helping people with their speaking skills!
 
-**Here's some posters to help explain what we can offer**
+**Here's some posters to help highlight what we can offer**
 
+<a href="/assets/images/cscPosterFree.pdf">Poster - Sessions Are Currently Free</a>
+<a href="/assets/images/csc-2020-2021-microphone.pdf">Poster - Microphone</a>
+
+<img src="/assets/images/poster1.jpg">
 
 ## 26 May 2019
 ### 2019 Success
