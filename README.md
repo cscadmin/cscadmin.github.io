@@ -35,3 +35,5 @@ _better_ **presenters** and _better_ **leaders**.
 ## More Info
 
 Interested in how our meetings work? [full details here...](/moreinfo.html)
+
+<img src="/assets/images/poster1.jpg">
