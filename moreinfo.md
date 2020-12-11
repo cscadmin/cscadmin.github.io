@@ -26,7 +26,9 @@ We meet alternate Mondays (more or less) from September to May at the Soroptomis
 
 ## Cost?
 
-Membership is currently £45 per year (and just £23 for those in full-time education). This is great value for up to 18 meetings (around £3 a session).
+<span style="color:red;">**Meetings are currently free**</span> (until May 2021) - as we are meeting online at the moment due to Covid
+
+<span style="text-decoration:line-through;">Membership is currently £45 per year (and just £23 for those in full-time education). This is great value for up to 18 meetings (around £3 a session).
 
 We consider Speakers Club to be much better value than Day Training courses for those wishing to improve their speaking skills. Many such courses are good, but they are much more expensive and usually offer no possibility of continuing practice before a sympathetic audience with the benefit of constructive evaluation.
 
