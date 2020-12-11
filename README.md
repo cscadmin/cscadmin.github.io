@@ -11,7 +11,7 @@
 ## ! Coronavirus Update !
 
 <span style="color:red;">
-Due to the current **Coronavirus** situation, we have moved to having a monthly **online** meeting (using the Zoom app) during 2020 and early 2021 - timetable [here](/events.html). *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person later in 2021, but we have decided to put everyone's health first at the moment. 
+Due to the current **Coronavirus** situation, we have moved to having a **free** monthly **online** meeting (using the Zoom app) during 2020 and early 2021 - timetable [here](/events.html). *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person later in 2021, but we have decided to put everyone's health first at the moment. 
 </span>
 
 ## Welcome !
@@ -28,7 +28,7 @@ Our members gain **confidence** and **support**, growing to become _better_ **sp
 _better_ **presenters** and _better_ **leaders**.
 
 - _In normal circumstances_ we meet every other week - **7.30pm until 9pm** at _The Soroptimist's Rooms, 28 Otley St, Skipton, BD23 1EW_ <span style="color:red;"> Meetings are currently online due to Coronavirus, see above</span>
-- **First 3 meetings free** - then after that a small fee to cover venue hire (less than £5 per time)
+- <span style="color:red;">**Meetings are currently free**</span> - as we are meeting online at the moment due to Covid
 - We run an established training programme that's been **proven to work**
 - Benefit from our _supportive, fun, relaxed, pressure-free_ environment
 
