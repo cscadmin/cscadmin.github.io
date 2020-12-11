@@ -4,7 +4,7 @@
 ## Meetings and Events - Early 2021 - !! Coronavirus Update !!
 
 <span style="color:red;">
-Due to the current **Coronavirus** situation, we have moved to having a free monthly **online** meeting (using the Zoom app) during early 2021. *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person later in 2021, but we have decided to put everyone's health first at the moment. 
+Due to the current **Coronavirus** situation, we have moved to having a **free** monthly **online** meeting (using the Zoom app) during early 2021. *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person later in 2021, but we have decided to put everyone's health first at the moment. 
 </span>
 
 | Date / Time              | Location                  | Details                                    |
