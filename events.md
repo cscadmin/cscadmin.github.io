@@ -1,11 +1,22 @@
 **New members _always_ welcome** at any event. Our regular **Skipton** venue is 
 **The Soroptimist Rooms, 28 Otley St, Skipton, BD23 1EW**
 
-## Meetings and Events - Autumn 2020 - !! Coronavirus Update !!
+## Meetings and Events - Early 2021 - !! Coronavirus Update !!
 
 <span style="color:red;">
-Due to the current **Coronavirus** situation, we have moved to having a monthly **online** meeting (using the Zoom app) during 2020 and early 2021 - timetable [here](/events.html). *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person later in 2021, but we have decided to put everyone's health first at the moment. 
+Due to the current **Coronavirus** situation, we have moved to having a free monthly **online** meeting (using the Zoom app) during early 2021. *New members are very welcome at these  sessions, please get in [contact](/contact.html) to obtain instructions for joining us online*. We are very keen to get back to meeting in person later in 2021, but we have decided to put everyone's health first at the moment. 
 </span>
+
+| Date / Time              | Location                  | Details                                    |
+|:------------------------ |:------------------------- |:------------------------------------------ |
+| Mon 04 Jan 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 01 Feb 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 01 Mar 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 19 Apr 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 03 May 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 17 May 2021 - 7.30pm | Online - Zoom             | AGM                                        |
+
+## Past Meetings and Events - Autumn 2020 
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
@@ -18,7 +29,7 @@ Due to the current **Coronavirus** situation, we have moved to having a monthly 
 | Mon 30 Nov 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 14 Dec 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 
-## Meetings and Events - Early 2020
+## Past Meetings and Events - Early 2020
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
@@ -34,7 +45,7 @@ Due to the current **Coronavirus** situation, we have moved to having a monthly 
 | Mon 04 May 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 18 May 2020 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 
-## Meetings and Events - Autumn 2019
+## Past Meetings and Events - Autumn 2019
 
 | Date / Time              | Location                  | Details                                    |
 |:------------------------ |:------------------------- |:------------------------------------------ |
