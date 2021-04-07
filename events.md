@@ -12,7 +12,7 @@ Due to the current **Coronavirus** situation, we have moved to having a **free**
 | Mon 04 Jan 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 01 Feb 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 01 Mar 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
-| Mon 19 Apr 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
+| Mon 12 Apr 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 03 May 2021 - 7.30pm | Online - Zoom             | Club night - Speeches and Ad-Lib Topics    |
 | Mon 17 May 2021 - 7.30pm | Online - Zoom             | AGM                                        |
 
